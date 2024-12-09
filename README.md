@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @j90pro
 - 👀 I’m interested in gaming
 - 🌱 I’m currently learning math
-- 💞️ I’m looking to collaborate on the war store
+- 💞️ I’m looking to collaborate with the war store
 - 📫 How to reach me facetime/phone
 - 😄 Pronouns: game with me
 - ⚡ Fun fact: i love to game fortnite
